@@ -1,1 +1,1 @@
-# deviant
+# might and magic
